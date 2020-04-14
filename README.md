@@ -25,3 +25,8 @@ https://netcinehd.com/mary-poppins/
 
 ## Prourando Dory
 http://gofilmes.me/index.php?url=procurando-dory.php
+
+## Yellow submarine (1968)
+https://tudohd.tv/submarino-amarelo-1968-assistir-online/
+
+
