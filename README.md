@@ -29,4 +29,8 @@ http://gofilmes.me/index.php?url=procurando-dory.php
 ## Yellow submarine (1968)
 https://tudohd.tv/submarino-amarelo-1968-assistir-online/
 
+## Peter Pan (1953) 
+https://megaboxfilmesonline.com/2015/07/assistir-peter-pan-dublado.html
 
+## Robin Hood (1973)
+https://filmesonlinex.me/filmes/Robin-Hood-Disney
