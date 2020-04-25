@@ -29,6 +29,9 @@ http://gofilmes.me/index.php?url=procurando-dory.php
 ## Yellow submarine (1968)
 https://tudohd.tv/submarino-amarelo-1968-assistir-online/
 
+## Mogli Disney (1967)
+https://megaboxfilmesonline.com/2015/06/assistir-mogli-o-menino-lobo-dublado-1967.html
+
 ## Peter Pan (1953) 
 https://megaboxfilmesonline.com/2015/07/assistir-peter-pan-dublado.html
 
