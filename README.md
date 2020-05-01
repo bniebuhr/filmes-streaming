@@ -25,6 +25,8 @@ https://netcinehd.com/mary-poppins/
 
 ## Prourando Dory
 http://gofilmes.me/index.php?url=procurando-dory.php
+ ## DIVERTIDA MENTE
+https://megafilmeshd.live/filme/divertida-mente/
 
 ## Yellow submarine (1968)
 https://tudohd.tv/submarino-amarelo-1968-assistir-online/
