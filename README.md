@@ -38,6 +38,9 @@ https://megaboxfilmesonline.com/2015/06/assistir-mogli-o-menino-lobo-dublado-196
 ## Robin Hood (1973)
 https://filmesonlinex.me/filmes/Robin-Hood-Disney
 
+## O Pequeno Buda 
+https://www.youtube.com/watch?v=jVoiMiYutFs
+
 ## Bacurau
 https://flixfilmes.org/filme/bacurau-2019-online/
 https://filmesx.biz/bacurau/
