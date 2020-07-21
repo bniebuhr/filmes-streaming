@@ -44,6 +44,9 @@ https://www.youtube.com/watch?v=jVoiMiYutFs
 ## A Tartaruga Vermelha (Studio Ghibli, 2016)
 https://assistirfilmesdublados.net/a-tartaruga-vermelha/
 
+## O Castelo Animado ((Studio Ghibli, 2004)
+https://nowanimes.com/o-castelo-animado/
+
 ## Bacurau
 https://flixfilmes.org/filme/bacurau-2019-online/
 https://filmesx.biz/bacurau/
