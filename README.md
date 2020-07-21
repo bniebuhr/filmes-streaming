@@ -32,14 +32,17 @@ https://megafilmeshd.live/filme/divertida-mente/
 ## Yellow submarine (1968)
 https://tudohd.tv/submarino-amarelo-1968-assistir-online/
 
-## Mogli Disney (1967)
+## Mogli Disney (Dinsey, 1967)
 https://megaboxfilmesonline.com/2015/06/assistir-mogli-o-menino-lobo-dublado-1967.html
 
-## Robin Hood (1973)
+## Robin Hood (Dinsey, 1973)
 https://filmesonlinex.me/filmes/Robin-Hood-Disney
 
 ## O Pequeno Buda 
 https://www.youtube.com/watch?v=jVoiMiYutFs
+
+## A Tartaruga Vermelha (Studio Ghibli, 2016)
+https://assistirfilmesdublados.net/a-tartaruga-vermelha/
 
 ## Bacurau
 https://flixfilmes.org/filme/bacurau-2019-online/
