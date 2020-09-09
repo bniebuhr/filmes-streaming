@@ -47,8 +47,12 @@ https://www.youtube.com/watch?v=jVoiMiYutFs
 ## A Tartaruga Vermelha (Studio Ghibli, 2016)
 https://assistirfilmesdublados.net/a-tartaruga-vermelha/
 
-## O Castelo Animado ((Studio Ghibli, 2004)
+## O Castelo Animado (Studio Ghibli, 2004)
 https://nowanimes.com/o-castelo-animado/
+
+## Mirai do Futuro (Mirai no Mirai, 2018)
+(upload your subtitle) https://fsharetv.co/movie/mirai-episode-1-tt6900448
+(pt) https://www.filmesonlinegratisbr.com/mirai-do-futuro-legendado-online/
 
 ## Bacurau
 https://flixfilmes.org/filme/bacurau-2019-online/
