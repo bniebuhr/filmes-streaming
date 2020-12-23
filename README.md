@@ -54,6 +54,9 @@ https://nowanimes.com/o-castelo-animado/
 (upload your subtitle) https://fsharetv.co/movie/mirai-episode-1-tt6900448
 (pt) https://www.filmesonlinegratisbr.com/mirai-do-futuro-legendado-online/
 
+## Mulan 2020
+https://querofilmeshd.co/filme/v1er-mulan/
+
 ## Bacurau
 https://flixfilmes.org/filme/bacurau-2019-online/
 https://filmesx.biz/bacurau/
