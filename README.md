@@ -24,7 +24,9 @@ https://topflix.tv/filmes/assistir-online-monstros-s-a/
 https://topflix.tv/filmes/assistir-online-valente/
 
 ## Mary Poppins (1964)
-https://megaboxfilmesonline.com/2015/07/assistir-mary-poppins-dublado.html
+https://www.filmesonlinegratisbr.com/mary-poppins-dublado-online-hd/
+
+https://mega-filmeshd.net/classico/mary-poppins-dublado-online/
 
 ## Prourando Dory
 http://gofilmes.me/index.php?url=procurando-dory.php
